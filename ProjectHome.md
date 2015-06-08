@@ -1,0 +1,1 @@
+Go to http://blog.isayev.org.ua for more info.
